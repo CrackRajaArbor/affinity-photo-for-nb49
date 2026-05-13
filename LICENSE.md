@@ -1,4 +1,4 @@
-# 
+# rare Affinity Photo for macOS Template | masking tools + content-aware fill offers the most advanced Affinity Photo for macOS template, with masking tools and content-aware fill.
 
 
 
